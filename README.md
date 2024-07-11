@@ -1,4 +1,4 @@
-## Oiii eu sou a Taina Castro!
+## 🤗Olá! Eu sou a Taina Castro.
 
 
 <div style="display: inline_block"><br>
